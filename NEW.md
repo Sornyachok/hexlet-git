@@ -1,1 +1,0 @@
-Pushok-cat is sleeping
